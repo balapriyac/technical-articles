@@ -1,3 +1,3 @@
-## Technical Articles
+## Technical Articles 
 
-![img-ta](https://i.imgur.com/FEOSRoy.png)
+![img-ta](https://i.imgur.com/bSemqLN.png)
